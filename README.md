@@ -1,1 +1,1 @@
-The learning glue you need.
+Small steps, big results.
